@@ -1,2 +1,3 @@
 # tarea1
-sjandkajsnkd holas
+INTEGRANTES.
+MATIAS MENDOZA VARGAS
